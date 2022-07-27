@@ -1,8 +1,8 @@
 - 👋 ola, meu nome vina rei delas
 - 👀 estou intersado em ser milionario antes dos 20anos
 - 🌱 eu estou apredendo a ter depresão e ansiedade
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ disponivel pra algumas, chama pvzin😜
+- 📫 viniciusbender12@outlook.com
 
 <!---
 ViniBoy666/ViniBoy666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
