@@ -1,4 +1,4 @@
-- 👋 ola, meu nome @ViniBoy666
+- 👋 ola, meu nome vina rei delas
 - 👀 estou intersado em ser milionario antes dos 20anos
 - 🌱 eu estou apredendo a ter depresão e ansiedade
 - 💞️ I’m looking to collaborate on ...
